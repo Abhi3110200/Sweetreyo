@@ -55,16 +55,5 @@ Delivery options:
 
 Make your cake truly unique with our customization options. From personalized messages to special decorations, we are committed to creating the perfect cake for your celebration.
 
- Contact Us
-
-Have questions or need assistance? Feel free to reach out to our customer support team:
-
-- Email: 21cs2022@rgipt.ac.in / abhishekdrv2002@gmail.com
-- Phone: +91 90040 77636
-
-Follow us on social media for updates, promotions, and sweet inspiration:
-- [LinkedIn](https://www.linkedin.com/in/abhishek-vishwakarma-33063122b/)
-- [Instagram](https://www.instagram.com/abhishekv_krma1307/)
-
 Thank you for choosing Sweetreyo! We look forward to making your celebrations a little sweeter.
 
